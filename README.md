@@ -1,1 +1,1 @@
-Check out the project and more at my website: [Avveer School Account](https://avveerschoolaccount.github.io/)
+Check out the project and more at my website: [Avveer's Portfolio](https://avveerschoolaccount.github.io/)
